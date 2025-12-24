@@ -1,4 +1,4 @@
-hi sign my tree if u want ok? ok -> 
+I APPRECIATE ALL THE SWEET MESSAGES!! HAPPY HOLIDAYS GUYS!!! 
 https://colormytree.me/2025/01JE03DKFEMMM1HD7DXHZBK8X2
 >
 gif dump
