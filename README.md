@@ -1,6 +1,7 @@
-let's ignore how the gif is broken ok..? maimai sonadow..
+IGNORE HOW THE GIFS ARE BROKEN. MY GOATS IN THE SAME GAME. AHH
 >
-![sonadow maimai](https://github.com/user-attachments/assets/d4dcce52-81c3-4f44-b17a-576eafccff60)
+![sonadow maimai](https://github.com/user-attachments/assets/a1be8151-5bbe-4167-876e-e9f11640b51c) ![nonoka maimai](https://github.com/user-attachments/assets/581e7ba2-a27f-4d04-b579-c99114a58c4e)
+
 
 hes stucjk in the maimai cab someone let him out..
 >
