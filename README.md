@@ -1,7 +1,6 @@
-arcaea and sonic will be real trust
+arcaea x sonic will be real trust
 >
-![sonadow maimai](https://github.com/user-attachments/assets/a1be8151-5bbe-4167-876e-e9f11640b51c) ![nonoka maimai](https://github.com/user-attachments/assets/581e7ba2-a27f-4d04-b579-c99114a58c4e)
-
+![sonadow maimai](https://github.com/user-attachments/assets/a1be8151-5bbe-4167-876e-e9f11640b51c) ![maya maimai](https://github.com/user-attachments/assets/cc3f3457-dbd1-4092-af84-7458e60c8257)
 
 hes stucjk in the maimai cab someone let him out..
 >
