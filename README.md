@@ -11,3 +11,4 @@ hes stucjk in the maimai cab someone let him out..
 MINI MARS... CREDITS 2 BEAN ILYSM!!
 >
 <img src="https://c.tenor.com/MuSR78yyHzUAAAAd/tenor.gif)" width="300" height="270" />
+<img width="154" height="247" alt="awesome" src="https://github.com/user-attachments/assets/e72712c8-1d8f-4389-a948-9b1d51745f43" />
