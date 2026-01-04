@@ -2,9 +2,8 @@ arcaea x sonic will be real trust
 >
 <img src="https://c.tenor.com/l57Vj4Lq0LsAAAAd/tenor.gif)" width="300" height="270" /> <img src="https://c.tenor.com/VdRGN9OIP60AAAAd/tenor.gif)" width="300" height="270" />
 
-hes stucjk in the maimai cab someone let him out..
->
-<img width="600" height="748" alt="image" src="https://github.com/user-attachments/assets/9c0d8016-ea53-4904-b7cb-ff4c95696f0b" />
+![chronicles bs](https://github.com/user-attachments/assets/f16dce9e-a90a-4762-a2d2-8d7eb344be76)
+
 
 <img src="https://c.tenor.com/2Hpkj156dzgAAAAd/tenor.gif)" width="300" height="270" /><img src="https://c.tenor.com/dQmgHi4dE_oAAAAd/tenor.gif)" width="300" height="270" />
 >
