@@ -1,6 +1,9 @@
-arcaea x sonic will be real trust
->
-<img src="https://c.tenor.com/l57Vj4Lq0LsAAAAd/tenor.gif)" width="300" height="270" /> <img src="https://c.tenor.com/VdRGN9OIP60AAAAd/tenor.gif)" width="300" height="270" />
+
+
+ARCAEA. X. SONIC. WILL BE REAL. TRUST.
+
+https://github.com/user-attachments/assets/73ea028b-1f47-4be2-8a52-f4b6a614432c
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbro
 
