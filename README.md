@@ -1,8 +1,6 @@
-
-
-ARCAEA. X. SONIC. WILL BE REAL. TRUST.
-
-https://github.com/user-attachments/assets/73ea028b-1f47-4be2-8a52-f4b6a614432c
+ troglodyte mars shadow
+ 
+ <img width="192" height="216" alt="IMG_5715" src="https://github.com/user-attachments/assets/46950a06-8d6b-46a6-ad32-2847e1d874fd" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbro
