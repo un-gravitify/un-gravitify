@@ -1,6 +1,3 @@
-isn't he cute........
- 
- <img width="192" height="216" alt="IMG_5715" src="https://github.com/user-attachments/assets/46950a06-8d6b-46a6-ad32-2847e1d874fd" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbro
