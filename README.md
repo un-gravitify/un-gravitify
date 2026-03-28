@@ -3,7 +3,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthank u laur very cool
 
 <img src="https://c.tenor.com/kW_1zhHacR0AAAAC/tenor.gif)" width="300" height="270" /><img src="https://c.tenor.com/ncY3VlPS0coAAAAC/tenor.gif)"/>
-<img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
+<img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" /> <img src="https://c.tenor.com/uSDB6HIERC0AAAAd/tenor.gif)" width="300" height="270" />
 
 
 
@@ -14,4 +14,3 @@
 </p>
  
 ㅤㅤㅤㅤㅤㅤㅤ  [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
-
