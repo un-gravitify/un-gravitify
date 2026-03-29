@@ -1,6 +1,6 @@
 
 
-ㅤㅤㅤthank u laur very cool
+ㅤㅤㅤthank u laur very coolㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhi im 2011x on idv
 
 <img src="https://c.tenor.com/ncY3VlPS0coAAAAC/tenor.gif)"/><img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
 
