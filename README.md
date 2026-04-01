@@ -14,4 +14,4 @@
  
 ㅤㅤㅤㅤㅤㅤㅤ  [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
 
-ㅤㅤㅤㅤ<img src="https://c.tenor.com/uSDB6HIERC0AAAAd/tenor.gif)" width="300" height="270" />
+ㅤㅤㅤㅤ<img src="https://c.tenor.com/OA7tSW6vxc4AAAAd/tenor.gif)" width="300" height="270" />
