@@ -13,3 +13,5 @@ my shit BROKE. thanks nyan neko nortcest girls
 ‎‎ㅤㅤㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
 
 ㅤㅤㅤㅤ<img src="https://c.tenor.com/RDPlZmvkntMAAAAC/tenor.gif)" width="300" height="170" />
+<img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/42000167-a3b9-4d61-b428-8071f3160a5e" />
+me benni bean
