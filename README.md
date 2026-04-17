@@ -14,4 +14,4 @@ my shit BROKE. thanks nyan neko nortcest girls
 
 ㅤㅤㅤㅤ<img src="https://c.tenor.com/RDPlZmvkntMAAAAC/tenor.gif)" width="300" height="170" />
 <img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/42000167-a3b9-4d61-b428-8071f3160a5e" />
-me benni bean
+family photo of bean benni and me
