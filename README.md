@@ -1,5 +1,5 @@
 
-my shit BROKE. thanks nyan neko nortcest girls
+my shit BROKE
 <img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
 
 
