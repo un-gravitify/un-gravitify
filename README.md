@@ -12,6 +12,6 @@ my shit BROKE
  
 ‎‎ㅤㅤㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
 
-ㅤㅤㅤㅤ<img src="https://c.tenor.com/RDPlZmvkntMAAAAC/tenor.gif)" width="300" height="170" />
+ㅤㅤㅤㅤ<img src="https://c.tenor.com//BZ_jWjqGP-IAAAAj/tenor.gif)" width="300" height="220" />
 <img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/42000167-a3b9-4d61-b428-8071f3160a5e" />
 family photo of bean benni and me
