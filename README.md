@@ -1,5 +1,6 @@
 
 my shit BROKE
+
 <img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
 
 
@@ -13,5 +14,6 @@ my shit BROKE
 ‎‎ㅤㅤㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
 
 ㅤㅤㅤㅤ<img src="https://c.tenor.com//BZ_jWjqGP-IAAAAj/tenor.gif)" />
+
 <img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/42000167-a3b9-4d61-b428-8071f3160a5e" />
 family photo of bean benni and me
