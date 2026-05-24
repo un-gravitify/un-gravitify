@@ -15,5 +15,6 @@ my shit BROKE
 
 ㅤㅤㅤㅤ<img src="https://c.tenor.com//BZ_jWjqGP-IAAAAj/tenor.gif)" />
 
-<img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/42000167-a3b9-4d61-b428-8071f3160a5e" />
-family photo of bean benni and me
+<img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/42000167-a3b9-4d61-b428-8071f3160a5e" /> <img width="300" height="321" alt="image" src="https://i.postimg.cc/ZqVGLpn1/image-2026-05-24-003823127.png" />
+
+family photos of bean benni and me
