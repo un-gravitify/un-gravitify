@@ -1,7 +1,7 @@
 
 my shit BROKE
 
-<img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
+ㅤ  <img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
 
 
 
@@ -13,4 +13,4 @@ my shit BROKE
  
 ‎‎ㅤㅤㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://stibsin.straw.page)
 
-ㅤㅤㅤㅤ<img src="https://c.tenor.com//BZ_jWjqGP-IAAAAj/tenor.gif)" />
+ㅤㅤㅤ<img src="https://c.tenor.com//BPt52d2EztoAAAAC/tenor.gif)" />
