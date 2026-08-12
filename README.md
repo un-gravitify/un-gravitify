@@ -9,8 +9,9 @@
   </a>
 </p>
  
-‎‎ㅤㅤㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://stibsin.straw.page)
+‎‎ㅤㅤㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤ<img alt="Untitled1265_20260812155619 (2)" src="https://github.com/user-attachments/assets/2e19a2b0-d41a-4fe3-9667-366b06f64968" />
+ㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://stibsin.straw.page)
 
-ㅤㅤㅤ<img src="https://c.tenor.com//BPt52d2EztoAAAAC/tenor.gif)" />
+‎ㅤㅤㅤ<img alt="Untitled1261_20260812151401 (1)" src="https://github.com/user-attachments/assets/e322880b-ef2c-4e44-aa41-0206bf21c939" />
 
-spectral fades addiction is real
+‎ㅤㅤㅤㅤspectral fades addiction is real
