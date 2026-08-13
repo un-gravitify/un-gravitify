@@ -2,7 +2,7 @@
 ㅤ  <img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
 
 
-   ㅤㅤ ㅤi need hyperreality on spotify NOW
+   ㅤㅤ ㅤtap into chunithm lore
 
 <p align="left">
                   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=r5pjwxk0kh15p1n5zfk9rtsyn&redirect=true">
