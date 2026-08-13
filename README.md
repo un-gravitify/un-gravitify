@@ -2,7 +2,7 @@
 ㅤ  <img src="https://c.tenor.com/CTPNWiT-uWQAAAAd/tenor.gif)" width="300" height="270" />
 
 
-   ㅤㅤ ㅤtap into chunithm lore
+   ㅤㅤ  ㅤㅤtap into [chunithm lore](https://www.chunithmstory.com)
 
 <p align="left">
                   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=r5pjwxk0kh15p1n5zfk9rtsyn&redirect=true">
